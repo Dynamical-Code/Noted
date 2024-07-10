@@ -27,4 +27,4 @@ In today's fast-paced world, keeping track of thoughts, ideas, and important inf
 
 Made with ❤️ by Hamza
 Credence High School, Dubai
-2024-25
+2024-2025
